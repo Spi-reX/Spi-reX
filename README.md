@@ -1,1 +1,3 @@
-Petit fou de l'informatique Autodidacte aussi
+Je suis autodidacte
+- Femboy de temps en temps 
+i use arch btw
